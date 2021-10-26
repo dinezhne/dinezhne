@@ -4,7 +4,7 @@ First of all: who the fu- uhm, who am i?
 - C# coder
 - Coffee addict
 
-What do i wanna do?
-- Drink coffee
+What would i like to do in the future?
+- Drink more coffee
 - Join gamejam
 - M O N E Y
